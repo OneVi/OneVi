@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @OneVi
+- 👀 I’m interested in twoja mama 
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me nie da sie xd
